@@ -1,4 +1,2 @@
-hello git!
-tell me why?
-# shut down
-外国的月亮没比较圆！
+Work on work you love!
+想做就赶紧去做吧，等你觉得自己都准备好了，或许就没动力了。
